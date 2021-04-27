@@ -10,18 +10,15 @@ I'm a second year student at University of Toronto
 - ♟️ Play me in a game of Chess! 😉
 
 ### About me ✨
-I am an incoming member of the Computer Science Student Community (CSSC) at my University.  
-I enjoy spending time with my friends (virtually) and taking my dog out to the park on a sunny day.   
-I'm a very active person and Enjoy splorts such as; Soccer, Snowboarding, Badminton, and Skating.   
+I am an incoming member of the Computer Science Student Community (CSSC) at my University.    
+I'm a very active person and enjoy sports such as; Soccer, Snowboarding, Badminton, and Skating.     
 Check out my 16 personalities if you're more intrestedto learn more about me: https://www.16personalities.com/free-personality-test/b13fda4831e9c  
 
 ### Games and Hobbies of mine 🎮
 - League of Legends 
 - DnD
 - Chess
-- Apex
-- TFT
-- Minecraft    
+- Apex Legends  
 message me if youre interested in playing any of these sometimes 🤗
 
 <!--
