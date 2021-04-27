@@ -1,6 +1,6 @@
 ### Hey there, I'm Kiara 👋
 #### Welcome to my github!
-I'm a second year Computer Science and Criminology student at University of Toronto
+I'm a second year student at University of Toronto
 
 - 🌱 I’m currently learning Python
 - 💬 Ask me about my dog Nova 🐾
