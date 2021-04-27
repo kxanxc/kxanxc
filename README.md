@@ -21,7 +21,9 @@ Check out my 16 personalities if you're more intrestedto learn more about me: ht
 - Chess
 - Apex
 - TFT
-- Minecraft   
+- Minecraft    
+
+
 message me if youre interested in playing any of these sometimes 🤗
 
 <!--
