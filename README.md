@@ -12,7 +12,7 @@ I'm a second year student at University of Toronto
 ### About me ✨
 I am an incoming member of the Computer Science Student Community (CSSC) at my University.    
 I'm a very active person and enjoy sports such as; Soccer, Snowboarding, Badminton, and Skating.     
-Check out my 16 personalities if you're more intrestedto learn more about me: https://www.16personalities.com/free-personality-test/b13fda4831e9c  
+Check out my 16 personalities if you're more intrested to learn more about me: https://www.16personalities.com/free-personality-test/b13fda4831e9c  
 
 ### Games and Hobbies of mine 🎮
 - League of Legends 
